@@ -1,4 +1,4 @@
-![gif description](https://files.catbox.moe/l3tfhx.jpg) 
+![gif description](https://files.catbox.moe/nfaltt.jpg) 
 
 ░ ⌗ 𝘙𝘌𝘈𝘋 MY RENTRY BEFORE YOU INTERACT. !! 
 - 
