@@ -2,7 +2,7 @@
 
 ░ ⌗ 𝘙𝘌𝘈𝘋 MY RENTRY BEFORE YOU INTERACT. !! 
 - 
-↷✦; 𝘎𝘢𝘣𝘦 or kin names!! '
+↷✦; idc what name u call me.. but i prefer beom !! '
 
 ⌗ idc what pronouns + it/its
 
