@@ -9,8 +9,8 @@
 ▒  Pansexual ᥬ unlabeled gender  + Grayromantic !!!!!!
 
 ⌑ F𝘐𝘊𝘛𝘐𝘖𝘕𝘒𝘐N + OTHERKIN []
-Heavy park minsu, oh beomseok,  park humin & yoo jinwoo Id/selfhood.
-doubles dni/iwec 
+Heavy oh beomseok  & yoo jinwoo Id/selfhood.
+doubles diwec 
 
 ༄ C+H & Int is appreciated please!!! feel free to bmf aswell,read my rentry first tho...  I also accept all friend requests too , so dont be afraid!!! 
 
