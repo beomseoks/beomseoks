@@ -1,7 +1,7 @@
 ![gif description](https://files.catbox.moe/nfaltt.jpg) 
 
 ░ ⌗ 𝘙𝘌𝘈𝘋 MY RENTRY BEFORE YOU INTERACT. !! 
-- I am a non sharing seo moonjo & selective sharing wolf keum yumeshipper.
+- I am a selective sharing wolf keum yume gachikoi
 - 
 
 ▒  Pansexual ᥬ unlabeled gender  + Grayromantic !!!!!!
