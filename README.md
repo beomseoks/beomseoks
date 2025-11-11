@@ -4,7 +4,7 @@
 - I am a selective sharing wolf keum yume gachikoi
 - 
 
-▒  Pansexual ᥬ unlabeled gender  + Grayromantic !!!!!!
+▒  Panromantic ᥬ unlabeled gender  + Grayromantic !!!!!!
 
 ⌑ F𝘐𝘊𝘛𝘐𝘖𝘕𝘒𝘐N + OTHERKIN []
 Heavy oh beomseok  & yoo jinwoo Id/selfhood.
