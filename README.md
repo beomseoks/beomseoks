@@ -1,4 +1,4 @@
-![gif description](https://files.catbox.moe/nfaltt.jpg) 
+![gif description](https://files.catbox.moe/nz8i69.gif) 
 
 ░ ⌗ 𝘙𝘌𝘈𝘋 MY RENTRY BEFORE YOU INTERACT. !! 
 - I am a selective sharing wolf keum yume gachikoi
